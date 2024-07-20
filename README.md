@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: poop haha
 -->
+![Official Logo Transparent Black](https://github.com/user-attachments/assets/2bf116c1-cb39-4972-9797-be1c37038e8f)
