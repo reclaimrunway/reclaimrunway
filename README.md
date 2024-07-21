@@ -12,6 +12,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about sustainable fashion
 - 📫 How to reach me: reclaimrunway@gmail.com
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: poop haha
+- ⚡ Fun fact: 
 -->
 ![Official Logo Transparent Black](https://github.com/user-attachments/assets/2bf116c1-cb39-4972-9797-be1c37038e8f)
